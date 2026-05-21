@@ -10,11 +10,9 @@
 <div>
   <div align="center">
 <h1>hallo im luka <3!</h1>
-<p class="lead">i'm a hardcore diehard yume, my yumelist is on my strawpage. some of my yumes arent listed but i will probably hide u if u yume any of my bfs</p>
+<p class="lead">i'm a hardcore diehard yume (check out my shota yumelist at https://pronouns.cc/@shotattore), my yumelist is on my strawpage. some of my yumes arent listed but i will probably hide u if u yume any of my bfs</p>
 🤍
-<h3>i am AoD's biggest fan! my goal is to m6w5 every member!!! ^_^ i also will not be pulling ANY characters other than the angels. on their first banners im not worrying about m6 or anything, just getting them
-(will update with time) currently im at;</h3>
-<h3>Sunna M1W1</h3>
+<h3>i am AoD's biggest fan!
 <div class="meta">
 <div class="pill">im the big 17, under 15 please just dont interact with me. i dont feel comfortable with it</div>
 <div class="pill">fandom int HOWEVER if ur under 17 do not talk to me about DoL 😭 i feel very iffy talking about it with people younger than me</div>
