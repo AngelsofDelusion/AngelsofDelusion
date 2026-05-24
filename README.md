@@ -11,6 +11,8 @@
   <div align="center">
 <h1>hallo im luka <3!</h1>
 <p class="lead">i'm a hardcore diehard yume (check out my shota yumelist at https://pronouns.cc/@shotattore), my yumelist is on my strawpage. some of my yumes arent listed but i will probably hide u if u yume any of my bfs</p>
+ please read, super important callout on someone sitting at the tree (who we obviously do not associate with)
+ https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?tab=t.0
 🤍
 <h3>i am AoD's biggest fan!
 <div class="meta">
